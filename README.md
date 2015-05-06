@@ -1,1 +1,1 @@
-ugly shop-backend . 58 days left . Work is starting.
+ugly shop-backend . 4 days left . Still have much work
